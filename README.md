@@ -1,2 +1,0 @@
-# PelayananMasyarakat
-komen yaa
